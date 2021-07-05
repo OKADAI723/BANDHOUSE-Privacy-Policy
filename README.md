@@ -1,0 +1,2 @@
+# BANDHOUSE-Privacy-Policy
+BANDHOUSEのプライバシーポリシーです
